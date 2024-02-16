@@ -1,3 +1,3 @@
-we have internals on friday
+you have internals on friday
 all the best
 do well
